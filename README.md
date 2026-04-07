@@ -1,1 +1,0 @@
-# Medic_Vedica
